@@ -7,6 +7,4 @@ Step 3: Restart your server
 
 Preview: https://youtu.be/aeiQCFp7KUk
 
-Mini Villa by K A R E N (Jupiter Studio)
-Join us: https://discord.gg/pqxkZM6jvf
 
